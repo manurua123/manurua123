@@ -1,2 +1,1 @@
-- 👋 Hi, I’m Manu Rua
-- 👀 I’m a student of the Faculty of Informatics of the U.N.L.P.
+Pleno 2021 y todavia no se como completar estas cosas... me gusta la chocolatada, mirar peliculas en TNT a la tarde y pase 2020 sin contagiarme del covid :space_invader:
