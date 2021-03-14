@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Manu Rua
+- 👀 I’m a student of the Faculty of Informatics of the U.N.L.P.
